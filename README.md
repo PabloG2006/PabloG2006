@@ -1,4 +1,4 @@
-- 💤 Durmiendo 24/7
+- 💤 No Durmiendo 24/7
 - 🔤 ª
 
 <---UwU--->
