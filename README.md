@@ -1,4 +1,7 @@
-- 💤 No Durmiendo 24/7
-- 🔤 ª
+Fundador de LexyBot.
 
-<---UwU--->
+Invite LexyBot ==> https://bit.ly/lexybot_invite
+
+Servidor de Soporte LexyBot ==> https://bit.ly/lexybot
+
+HickCraft ==> https://dsc.gg/hickcraft
