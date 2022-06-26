@@ -1,7 +1,5 @@
 Fundador de LexyBot.
 
-Invite LexyBot ==> https://bit.ly/lexybot_invite
+Invite LexyBot ==> [Click aquí.](https://dsc.gg/lexybot_)
 
-Servidor de Soporte LexyBot ==> https://bit.ly/lexybot
-
-HickCraft ==> https://dsc.gg/hickcraft
+Servidor de Soporte LexyBot ==> [Click aquí.](https://dsc.gg/lexybot)
